@@ -17,7 +17,8 @@
 
 - ⚡ Fun fact **The first Computer "bug" was actual real-life "bug"😛🧩**
 
-<h3 align="left">Connect with me:</h3>
+<h3 align="left">Connect with me💙:</h3>
+<a href="https://www.linkedin.com/in/devashokc/" target="_blank" rel="noreferrer">
 <p align="left">
 </p>
 
